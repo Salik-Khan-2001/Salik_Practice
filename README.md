@@ -1,1 +1,0 @@
-# Salik_Practice
